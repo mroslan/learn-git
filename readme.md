@@ -1,2 +1,1 @@
-bacalah saya
-tambah² ke
+bacalah 
